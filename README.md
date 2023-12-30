@@ -1,5 +1,6 @@
 ### Hi there 👋
 
-**`Please Don't contact me regarding collabs, i am not good at this'**
+**`Cybersecurity Student.'**
 
-I make stuff
+Student @ Collin College
+person
